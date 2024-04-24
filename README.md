@@ -1,4 +1,4 @@
-## ReHire 
+## ReHire - Let's find it together
 
 ## Description
 
